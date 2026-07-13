@@ -1,0 +1,1 @@
+# mailinger-assets
